@@ -1,0 +1,2 @@
+- 👋 Cześć jestem oktiexe
+- 👀 interesuje mnie kodowanie, konsola i gry
